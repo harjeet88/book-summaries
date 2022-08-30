@@ -8,3 +8,5 @@
 3. can you improve your product?
 4. dont be over use their idea in your strategy
 5. constantly review what your competition is trying
+6. Netflix ahead of competitors
+7. blackberry only thinking about their product
