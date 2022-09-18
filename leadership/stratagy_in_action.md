@@ -37,3 +37,29 @@
     4. How to change
     5. How to measure 
 12. Ultimate test of strategy is how you adapt to circumstances you face. This needs recognition to adapt.  
+13. Measure of success
+    1. When you are able to relate new info to your strategy
+    2. everyone in your stakeholders knows bigger picture
+    3. your work is aligned to your big picture
+    4. simplified big picture to comunicate 
+15. Checklist
+    1. mission
+    2. role's relation to company's success
+    3. communicate big pictur with colleagus
+    4. know what affects big picture strtaegy
+    5. identify key trends
+
+### Finding Position, Intent and Direction
+1. Know how your Prodcuts, company is positioned in market
+2. Know here are u going to compete. what you intend to acheive and which direction
+3. Apple example of failure to success. where they became successful by launching series of products , not 1 product. They were clear on position, intent and direction
+4. Dont confuse Mission with Position. Mission should have position, intent and direction.
+5. Apple's position is they want to build best designed and quality computer. Dell wants to be successful company and give best customer experience. Both are positioning them differntly. ultimately, they could both give best computers and best customer experience and succeful companies. But what they priortise is different from each other
+6. You should know how you will be identified by your customers.
+7. if you dont define positon clearly. it will confuse your employees and evryone.
+8. while defining position. start with cost and quality. then expand diff and think what you want to focus on.
+9. plot on chart - high quality, high cost or high quality low cost or low quality low cost etc
+10. How can you clearly state your position and intent. think about one line slogan.
+
+### Looking for Advantages
+
