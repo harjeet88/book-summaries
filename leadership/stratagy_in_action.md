@@ -62,4 +62,22 @@
 10. How can you clearly state your position and intent. think about one line slogan.
 
 ### Looking for Advantages
+1. Know what is your USP fro competition
+   1. Cost
+   2. Unique Product, features
+   3. Focus- eg. u are targeting specific segment. u are only hairdreser in area. only network provider in area etc.
+2. Aldi focus on cheaper, simpler, better.
+3. cost leadership can be improved by efficiency in supply chain, impacts bottom line. involve experts and learn. scale can help to negotiate with supplier etc.
+4. identify features, product noone else provide. u can charge more for them. dont be in illusion that features that u like will also be liked by ur customer.
+5. Your strategy should be combination of all 3 above.
+6. succeful strategy is not a big bang change, it is delta changes done over a peroid.
+7. Japnese casr maker, started with small cars. cost efficient. then started entering in differnt market segment like luxary, family cars etc. china is doing same.
+8. Know how your are positioned in cost as compare to competition
+9. Know ur usp.
+10. know ur segments.
+11. how can u combine these to create future startegy and maintain competitive advantage.
+12. learn lessons from competition
 
+### Making Strategic Decision and Choices
+1. Coca-cola today is where because of decisions that were made in past. apple also. so it is multiple decisions and delta
+2. 
