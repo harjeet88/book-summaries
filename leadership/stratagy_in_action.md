@@ -80,4 +80,21 @@
 
 ### Making Strategic Decision and Choices
 1. Coca-cola today is where because of decisions that were made in past. apple also. so it is multiple decisions and delta
-2. 
+2. You should know what decision will do
+   1. Get some task done
+   2. out manuvre the competition
+   3. be part of strategic pattren
+   4. fix company position
+   5. risk company future
+4. get data to make decision. but u can never be 100% sure
+5. know impacts and how can u mitigate bad impacts
+6. get decisions made fast enough. fail fast is better.
+7. if you dont make decisions, it will cause confusion. people will do things differently, that u dont want them to do.
+8. Make decision with lense of strategy. see different POV. challenge assumptions and open to criticisum
+9. you shd know consequences of decision
+10. involving too many people in decision helps consensus but slows down decision process.
+11. while making decision think about consequences of each. how will u handle them. do u want to handle them? its like chess. think few steps ahead.
+12. Think like strategic person rather than long term planner
+
+### Adapting to your competitive environment
+1. 
